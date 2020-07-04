@@ -1,2 +1,4 @@
-# H4MM3R---SNDR
+# kontol lu
+
+
 Contact ;
